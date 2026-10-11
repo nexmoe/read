@@ -48,6 +48,7 @@
 
 ### 批判性思维
 
+- [如何完美反驳：人生来的使命就是工作](<哲学与思辨/批判性思维/如何完美反驳：人生来的使命就是工作 - 文章版 - VidBee.md>) · 发布：[2026-10-03](https://www.bilibili.com/video/BV1pNHe6WEix/)
 - [修仙，我全都要！批判性思维怎么看](<哲学与思辨/批判性思维/修仙，我全都要！批判性思维怎么看 - 文章版 - VidBee.md>) · 发布：[2026-10-01](https://www.bilibili.com/video/BV1ZTaz6XEjZ)
 - [柯南教你“何为批判性思维”：听不懂法庭告我](<哲学与思辨/批判性思维/柯南教你“何为批判性思维”：听不懂法庭告我 - 文章版 - VidBee.md>) · 发布：[2025-09-12](https://www.bilibili.com/video/BV15wHqzAEuQ)
 
